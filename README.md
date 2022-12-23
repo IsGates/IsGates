@@ -1,0 +1,3 @@
+- 👋 Hi, I’m IsGates
+- 👀 I’m interested in Guilty Gear, RWBY and Chainsaw Man
+- 📫 How to reach me Reddit: u/IsGates Discord: IsGates#0001 
